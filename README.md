@@ -1,1 +1,0 @@
-# jyamauchi.github.io
